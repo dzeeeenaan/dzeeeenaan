@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @dzeeeenaan
+- 👋 Hi, I’m @mrdzawesome
 - 👀 I’m interested in girls.
 - 🌱 I’m currently learning programming.
 - 💞️ I’m looking to collaborate on myself.
